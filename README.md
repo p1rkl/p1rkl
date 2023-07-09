@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @p1rkl
+- 👀 I’m interested in crypto
+- 🌱 I’m currently learning blockchain technology
+- 📫 How to reach me: via twitter @ignatpirkl1 or via facebook @Ignat Pir
